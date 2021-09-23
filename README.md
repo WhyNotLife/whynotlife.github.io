@@ -1,0 +1,1 @@
+# whynotlife.github.io
